@@ -1,0 +1,2 @@
+# Ahimsa
+Vegan friendly
